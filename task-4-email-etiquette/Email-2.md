@@ -1,3 +1,7 @@
+[Email_2.docx](https://github.com/user-attachments/files/26168617/Email_2.docx)
+
+
+
 **Write an email from a student to an internship coordinator at a company, expressing interest in a summer internship opportunity**
 
 **Subject:** Application for Summer Internship Opportunity
